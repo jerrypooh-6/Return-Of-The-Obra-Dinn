@@ -232,4 +232,4 @@ Return of the Obra Dinn is available as a complete free version with all feature
 Don't miss out on the chance to uncover the mystery of the Obra Dinn. **Download Return of the Obra Dinn FREE now and start your adventure today!**
 
 ---
-**Last updated:** 2026-09-17 22:48:32 UTC
+**Last updated:** 2026-09-18 01:03:00 UTC
